@@ -1,1 +1,0 @@
-Sales is vital
